@@ -1,1 +1,2 @@
 # rawr
+ok so i want to make a game about a man on a journey to find himself but has no clue on what to do and while looking around he finds a monk and goes to see him. when he meets this monk the monk shows himn inside his brain and he has to fight his inner demons. At the end of the game i would like for the man to come out of his mind and know what he was meant for in this world and then it fades to black as we are meant with the credits.
